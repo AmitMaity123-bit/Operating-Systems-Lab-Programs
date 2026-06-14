@@ -132,6 +132,7 @@ After completing these programs, students will be able to:
 Amit Kumar Maity
 
 B.Sc Student | Computer Science 
+
 College: [Midnapore College Autonomous](https://midnaporecollege.ac.in/)
 
 linkdin: [Amit Kumar Maity](https://www.linkedin.com/in/amit-kumar-maity8976/)
